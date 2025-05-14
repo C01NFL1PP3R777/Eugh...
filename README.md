@@ -5,6 +5,8 @@
 
 Check Strawpage and/or Rentry (THAT MY AMAZING SON XENOIXZ MADE!!!)
 
+Also I do have a new strawpage https://cre4t10n0fh4tred.straw.page/ but its still a wip so you should probably check that one out when its done since there might be more/new info abt me
+
 ALSO CUDS PLS PLS PLS PLS ESPECIALLY FROM MAFIOSOS/GUESTS PLS PLS PLS I LOVE ALL SHIPS W CHANCE PLS CUDDLE ME PLS PSLS PSLS PLS PLS PLS!!!
 
 🌙 -> Main Status/Offtab [W2I]
