@@ -5,7 +5,7 @@
 
 Check Strawpage and/or Rentry (THAT MY AMAZING SON XENOIXZ MADE!!!)
 
-Also I do have a new strawpage https://cre4t10n0fh4tred.straw.page/ CHECK IT OUT!!! IT'S 1X TH3M3D!!! YIPPEEE1!!
+Also I do have a new strawpage https://cre4t10n0fh4tred.straw.page/ CHECK IT OUT!!! IT'S 1X TH3M3D!!! YIPPEEE1!! <- it gave me epilipsy nvm dont do it
 
 ALSO CUDS PLS PLS PLS PLS ESPECIALLY FROM MAFIOSOS/GUESTS PLS PLS PLS I LOVE ALL SHIPS W CHANCE PLS CUDDLE ME PLS PSLS PSLS PLS PLS PLS!!!
 
@@ -22,3 +22,11 @@ ALSO CUDS PLS PLS PLS PLS ESPECIALLY FROM MAFIOSOS/GUESTS PLS PLS PLS I LOVE ALL
 
 
 🎭 -> This Status Is Not In Use
+
+
+
+@mafiasdebt - FAGGOT IM NOT DOING YOUR DAD!!! HE'S DOING ME!!!!!!!!!!!!!!!!!!
+
+@calinde4n - CALIN PLSPLSPLPSPLSPLSPLSPLS LET ME SEE C00LKIDD AGAIN I DIDN'T MEAN TO HELP HIM KILL 201838 PEOPLE DUDE PSLSPLSPSLPSLSP I'M SORRY!!!!!!!!!!!!!!!!!!!!!
+
+@xenoixz - No comment, I love my son
