@@ -5,7 +5,6 @@
 
 Check Strawpage and/or Rentry (THAT MY AMAZING SON XENOIXZ MADE!!!)
 
-Also I do have a new strawpage https://cre4t10n0fh4tred.straw.page/ CHECK IT OUT!!! IT'S 1X TH3M3D!!! YIPPEEE1!! <- it gave me epilipsy nvm dont do it
 
 ALSO CUDS PLS PLS PLS PLS ESPECIALLY FROM MAFIOSOS/GUESTS PLS PLS PLS I LOVE ALL SHIPS W CHANCE PLS CUDDLE ME PLS PSLS PSLS PLS PLS PLS!!!
 
