@@ -31,10 +31,24 @@ ALSO CUDS PLS PLS PLS PLS PLS PLS PLS I LOVE ALL SHIPS W CHANCE PLS CUDDLE ME PL
 
 @v0ltr1xx - This guys a total fag!!! like ermmrmmm who is this guy!??!?!?!?
 
-+ Oomfs w no github...
++ OOMFS W NO GITHUB :
 
 @SL0WSNAIL - YOU FAGTARD I HATE YOU I'M TAKING BUILDERMAN AWAY FROM YOU YOU RABID ANIMAL!!!!!!! CALLING ME A FAGGOT AND THEN SAYING YOU'RE HOMOPHOBIC!? THIS IS UNBELIEVABLE!!!!! I NEVER WANT TO SEE YOUR FAGGOT ASS AGAIN!!!!!!!!!/Hvyj
 
+
 @AB$URD/Scythe - Heh hi Scythe you're super epic and cool hehh lets play pressure together heh
 
-@Ezra/Medkit - HI MEDKIT HIHIHIHIHIHI LETS ALL PLAY PRESSURE TOGETHER GANG
+
+@Ezra/Medkit - HI MEDKIT HIHIHIHIHIHI LETS ALL PLAY PRESSURE TOGETHER GANG HEH WE CAN BE SCYTHE MEDKIT AND BROKER GANG
+
+
+@asingularpipewrench/Sk8r - HI SKATE YOU'RE SUPER FREAKING COOL YAYAYAYYYAYAYAY Also heh.. peak drawings you made on my straw... heh...
+
+
+@Mateo/Mug - ... side eyes you and throws a beer bottle at... fagtard... sigh, pay the baby sitting fees vro... Matthew is becoming more of a fag each day...
+
+
+@Critter - HI CRITTER HIHIHIHIHIHIIIII YOU'RE SUPER SILLY ILY YAYAYAYAYAYAYYAY
+
+
+@mundystuf - Absolute freak. no comment. freakiest person i know.
