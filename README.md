@@ -23,7 +23,7 @@ ALSO CUDS PLS PLS PLS PLS PLS PLS PLS I LOVE ALL SHIPS W CHANCE PLS CUDDLE ME PL
 
 
 
-@spawnseternalheart - FAGGOT SHUT UP IM NOT PLAYING TONGUE GUITAR WITH YOUR DAD!!!!!!!!!!!1 HE'S AN UGLY FAG!!!!!!!!!!!!!!!1111 GRRRRRRRRRRRR I HATE YOUR DAD!!!!!!!!!!!!!!!!!!!!!!! NOT EVEN PAYING CHILD SUPPORT ISTG ABUSIVE DAD CORE THROWING BEER BOTTLES AT HIS KID AND THE BABY SITTER HE DOESNT PAY SIGHHHHHHHHHHHHH HHHHHHH BING NOT VERY NICE. YOUR DAD NOT NICE BINGGGG. Heh duhbelfedora playlist... Honk mimimimimi
+@spawnseternalheart - FAGGOT SHUT UP IM NOT PLAYING TONGUE GUITAR WITH YOUR DAD!!!!!!!!!!!1 HE'S AN UGLY FAG!!!!!!!!!!!!!!!1111 GRRRRRRRRRRRR I HATE YOUR DAD!!!!!!!!!!!!!!!!!!!!!!! NOT EVEN PAYING CHILD SUPPORT ISTG ABUSIVE DAD CORE THROWING BEER BOTTLES AT HIS KID AND THE BABY SITTER HE DOESNT PAY SIGHHHHHHHHHHHHH HHHHHHH BING NOT VERY NICE. YOUR DAD NOT NICE BUNGGGG. Heh duhbelfedora playlist... Honk mimimimimi YKNOW MAYB YOU SHOULD TAP INTO THAT NEW SLEEP PHONK MATTHEW!!!!!!!
 
 
 @xenoixz - My amazing son yayyayayaayyy I'm a great online male parental figure yesss if xen says otherwise do not belive xem XIR LYING. I'm a great dad trust... Unlike a specific someone... *cough* Mateo... *COUGH*
@@ -33,7 +33,7 @@ ALSO CUDS PLS PLS PLS PLS PLS PLS PLS I LOVE ALL SHIPS W CHANCE PLS CUDDLE ME PL
 
 + OOMFS W NO GITHUB :
 
-@SL0WSNAIL - YOU FAGTARD I HATE YOU I'M TAKING BUILDERMAN AWAY FROM YOU YOU RABID ANIMAL!!!!!!! CALLING ME A FAGGOT AND THEN SAYING YOU'RE HOMOPHOBIC!? THIS IS UNBELIEVABLE!!!!! I NEVER WANT TO SEE YOUR FAGGOT ASS AGAIN!!!!!!!!!/Hvyj
+@SL0WSNAIL - YOU FAGGOT I HATE YOU I'M TAKING BUILDERMAN AWAY FROM YOU YOU RABID ANIMAL!!!!!!! CALLING ME A FAGGOT AND THEN SAYING YOU'RE HOMOPHOBIC!? THIS IS UNBELIEVABLE!!!!! I NEVER WANT TO SEE YOUR FAGGOT ASS AGAIN!!!!!!!!!/Hvyj
 
 
 @AB$URD/Scythe - Heh hi Scythe you're super epic and cool hehh lets play pressure together heh
@@ -45,10 +45,12 @@ ALSO CUDS PLS PLS PLS PLS PLS PLS PLS I LOVE ALL SHIPS W CHANCE PLS CUDDLE ME PL
 @asingularpipewrench/Sk8r - HI SKATE YOU'RE SUPER FREAKING COOL YAYAYAYYYAYAYAY Also heh.. peak drawings you made on my straw... heh...
 
 
-@Mateo/Mug - ... side eyes you and throws a beer bottle at... fagtard... sigh, pay the baby sitting fees vro... Matthew is becoming more of a fag each day...
+@Mateo/Mug - ... side eyes you and throws a beer bottle at... faggot... sigh, pay the baby sitting fees vro... Matthew is becoming more of a fag each day...
 
 
 @Critter - HI CRITTER HIHIHIHIHIHIIIII YOU'RE SUPER SILLY ILY YAYAYAYAYAYAYYAY
 
 
 @mundystuf - Absolute freak. no comment. freakiest person i know.
+
+@purevanillacookie_real - Supar cool i lik yu we should plai sewh togatehr yayayaya
