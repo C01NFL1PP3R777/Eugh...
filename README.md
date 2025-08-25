@@ -45,7 +45,7 @@ ALSO CUDS PLS PLS PLS PLS PLS PLS PLS I LOVE ALL SHIPS W CHANCE PLS CUDDLE ME PL
 @asingularpipewrench/Sk8r - HI SKATE YOU'RE SUPER FREAKING COOL YAYAYAYYYAYAYAY Also heh.. peak drawings you made on my straw... heh...
 
 
-@Mateo/Mug - ... side eyes you and throws a beer bottle at... faggot... sigh, pay the baby sitting fees vro... Matthew is becoming more of a fag each day...
+@Mateo/Mug - Deaduzz nothing to say abt you like wgatyoure kid said, your a huge faggot and a freaking fatass im never buying you a freaking happy meal ever again you big fat faggot I'm going to spit in your mouth BUDDY ADN TELL OYUR KID IM NOT PLAYING TONGUE GUITAR WITH YOU!!!!!!!!!1 I'D NEVER PLAY TONGUE GUITAR WITH YOU YOU FAGGOT GRRRRRRRR GRRRRRRRRRRRRRRRRRR HONESTLY I THINKS YOU'RE THE BIGGEST AND FATTEST FAGGOT I'VE KNOWN IN MY ENTIRE LIFE!!!!!!!!! FREAK YOUU AND YOUR FREAKING BEER BOTTLES HOW ABOUT YOU GET A JOB ISNTEAD OF MAKING ME PAY FOR YOUR HAPPY MEAL!!!!!!!!!!1
 
 
 @Critter - HI CRITTER HIHIHIHIHIHIIIII YOU'RE SUPER SILLY ILY YAYAYAYAYAYAYYAY
